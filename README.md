@@ -1,0 +1,2 @@
+# bilimdon-uquvchi
+Bilimdon uquvchi
